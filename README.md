@@ -1,0 +1,7 @@
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-001.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-002.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-003.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-004.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-005.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-006.jpg)
+![](https://github.com/skandupmanyu/Predictive_Keyboard/blob/master/report/Report_Images/Professional%20Email%20Writing%20Assistant-page-007.jpg)
